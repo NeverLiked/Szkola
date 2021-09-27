@@ -1,0 +1,1 @@
+przykłady zadanie linki ale nie działają.
